@@ -1,2 +1,0 @@
-# kantinku
-nyoba nyoba inimah
